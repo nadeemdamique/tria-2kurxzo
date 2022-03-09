@@ -1,1 +1,0 @@
-# tria-2kurxzo
